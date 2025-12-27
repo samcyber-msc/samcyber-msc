@@ -1,4 +1,4 @@
-# Sam Al Mohammedi  
+# Sam Al
 Cybersecurity Analyst  Information Assurance  
 GRC and Compliance • Risk Management • Security Auditing  
 
